@@ -1,1 +1,1 @@
-Hola, Menorca!
+Hola, Som el grup!
